@@ -1,6 +1,6 @@
 # Meu Curriculo, Confira!
 
-Baixar Curriculo:  [Pedro E. Angelozi h. zamora.pdf](https://github.com/PedroEnriqueAngelozi/PedroEnriqueAngelozi/files/12064618/Pedro.E.Angelozi.h.zamora.pdf)
+Baixar Curriculo: [Curriculo Pedro Angelozi.pdf](https://github.com/user-attachments/files/17954163/Curriculo.Pedro.Angelozi.pdf)
 
 # Meu Perfil no GitHub 👨‍💻
 
